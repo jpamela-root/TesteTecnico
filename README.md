@@ -1,1 +1,1 @@
-A seguir vai tmabem junto com os codigos VAI arquivos em PDF, CONTENDO a "Teste 01" , e outro PDF "teste 2" contendo a redação,la na parte do teste da pagina do GUPY não estar dando a opção de digitar,por isso irei deixar aqui o mesmo, desde já agradeço a compreensão:
+A seguir vai tambem junto com os codigos VAI arquivos em PDF, CONTENDO a "Teste 01" , e outro PDF "teste 2" contendo a redação,la na parte do teste da pagina do GUPY não estar dando a opção de digitar,por isso irei deixar aqui o mesmo, desde já agradeço a compreensão:
